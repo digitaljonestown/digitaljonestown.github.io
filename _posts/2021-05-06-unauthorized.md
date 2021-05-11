@@ -1,9 +1,9 @@
 ---
-title: Writing a New Post
-author: Cotes Chung
-date: 2019-08-08 14:10:00 +0800
-categories: [Blogging, Tutorial]
-tags: [writing]
+title: The Unauthorized.TV Scam
+author: Pastor Jim
+date: 2021-05-06 14:10:00 +0800
+categories: [Bear Cult, Unauthorized]
+tags: [unauthorized]
 ---
 
 ## Naming and Path

@@ -1,9 +1,9 @@
 ---
-title: Getting Started
-author: Cotes Chung
-date: 2019-08-09 20:55:00 +0800
-categories: [Blogging, Tutorial]
-tags: [getting started]
+title: Welcome to Digital Jonestown
+author: Pastor Jim
+date: 2021-05-04 20:55:00 +0800
+categories: [Bear Cult, Intro]
+tags: [intro]
 pin: true
 ---
 
