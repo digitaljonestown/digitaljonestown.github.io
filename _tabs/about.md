@@ -4,4 +4,5 @@ icon: fas fa-info
 order: 4
 ---
 
-Digital Jonestown is an online cult awareness variety comedy content creation community.
+
+> **Note**: Add Markdown syntax content to file `_tabs/about.md` and it will show up on this page.
