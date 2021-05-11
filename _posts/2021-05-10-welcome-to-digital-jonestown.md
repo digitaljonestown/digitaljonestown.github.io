@@ -1,8 +1,8 @@
 ---
 title: Welcome to Digital Jonestown
-author: Pastor Jimg
+author: Pastor Jim
 date: 2021-05-10 20:55:00 +0800
-categories: [Bear Cult, Intro]
+categories: [Bears, Intro]
 tags: [beartaria, unauthorized, patreon]
 pin: true
 ---
