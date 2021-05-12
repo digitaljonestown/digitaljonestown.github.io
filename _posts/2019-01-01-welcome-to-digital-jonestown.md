@@ -1,8 +1,8 @@
 ---
 title: Welcome to Digital Jonestown
 author: Pastor Jim
-date: 2021-05-04 20:55:00 +0800
-categories: [Bear Cult, Intro]
+date: 2019-01-01 20:55:00 +0800
+categories: [Intro]
 tags: [intro]
 pin: true
 ---
