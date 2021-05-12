@@ -2,7 +2,7 @@
 title: Owen Benjamin has raised almost $300,000 on Beartaria Lies
 author: Pastor Jim
 date: 2020-08-01 00:34:00 +0800
-categories: [Bear Cult, Beartaria]
+categories: [Scams, Beartaria]
 tags: [beartaria]
 ---
 
