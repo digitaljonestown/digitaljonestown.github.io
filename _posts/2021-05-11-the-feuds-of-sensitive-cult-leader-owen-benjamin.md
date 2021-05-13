@@ -14,14 +14,14 @@ tags: [beef]
 | Woman in the Woods      | Owen screams at a woman on a hiking trail.                   |
 | Joe Rogan               | [Owen makes a mistake and embarrasses Joe. Owen loses his mind after being rejected by another grown man.](https://digitaljonestown.com/categories/joe-rogan/) |
 | Joey Diaz               | [Owen carries on a years-long one-sided feud after voluntarily eating too much weed on Joey's podcast.](https://digitaljonestown.com/categories/joey-diaz/) |
-| Steven Crowder          | [Owen cries and carries on a years-long one-sided feud because Crowder fired him.](https://www.youtube.com/watch?v=bwIRNG56jGU) |
+| Steven Crowder          | [Owen cries and carries on a years-long one-sided feud because Crowder fired him.](https://digitaljonestown.com/categories/steven-crowder/) |
 | Alex Jones              | Owen cries and carries on a years-long one-sided feud because Alex fired him. |
 | Amy's Family            | Owen celebrates the death of his mother-in-law and gets in fights with Amy's family about conspiracy theories at holiday gatherings. |
 | Eric Dubay              | [Owen spirals as a way to avoid debating Dubay. Of all Owen's public conflicts, he's never taken part in a debate.](https://youtu.be/Jx-5VMMIxV4) |
 | Johnny Arcade           | [Owen doxxes a former fan and lies about him attempting to murder his son with poison gummies.](https://youtu.be/lxTEACYBuJI) |
 | Eric Nimmer             | [Owen chooses a known valor-stealing liar over his fans then ends up scammed out of $10,000.](https://www.youtube.com/watch?v=g3eQ_elB7cI) |
 | Owen's Dad              | [Owen and his mom conspire to ruin his dad's name for years only to admit it was all a lie.](https://www.bitchute.com/video/vrBbY0UDx2lM/) |
-| Mersh                   | Owen lies and says he has a detective who reported to him that Mersh admitted his fans swatted Owen. |
+| Mersh                   | [Owen lies and says he has a detective who reported to him that Mersh admitted his fans swatted Owen.](https://digitaljonestown.com/categories/mersh) |
 | Porsalin                | [Owen's fans doxx and slander a documentary filmmaker, sending him into hiding.](https://www.youtube.com/watch?v=3r3vUvK_H9I) |
 | Allan Powell            | [Owen manipulates a troll video and larps as if his life is in danger.](https://www.youtube.com/watch?v=UG4_hjRZiaA) |
 | Vincent James           | [Owen accuses Vince of setting him up because of negative questions from the audience.](https://www.bitchute.com/video/gU4LU421UbBK/) |
