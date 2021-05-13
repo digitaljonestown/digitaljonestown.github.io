@@ -44,7 +44,7 @@ tags: [beef]
 | Oil Bear             | Owen accuses a fan of a 'full psychotic break' for suggesting he use an ethernet cable. |
 | Rex Arcana           | Owen berates a fan for offering to meet up with another fan. |
 | Harrison Smith       | Owen goes after Harrison for his affiliation with Alex Jones. |
-| Rex Jones            | Owen goes after Harrison for his affiliation with Alex Jones. |
+| Rex Jones            | Owen goes after Rex for his affiliation with Alex Jones.     |
 | Destanee             | Owen berates an abuse victim and accuses her of hacking the bears' Instagram accounts. |
 | James True           | Owen lovebombs a fellow streamer and takes his money before kicking him to the curb. |
 | Marty Leeds          | Owen berates streamer for not having kids after claiming bears would never berate someone for not having kids. |
