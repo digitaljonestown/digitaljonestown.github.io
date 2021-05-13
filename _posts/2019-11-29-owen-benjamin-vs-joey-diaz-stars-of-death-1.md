@@ -1,7 +1,7 @@
 ---
 title: Owen Benjamin vs Joey Diaz - Stars of Death Part 1
 author: Pastor Jim
-date: 2020-02-17 00:34:00 +0800
+date: 20219-11-29 00:34:00 +0800
 categories: [Beef, Joey Diaz]
 tags: [beef]
 ---
