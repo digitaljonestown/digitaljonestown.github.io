@@ -40,7 +40,7 @@ tags: [beef]
 | Cowboy Bear             | [Owen berates a fan who just lost a young child.](https://www.bitchute.com/video/WvuzGc9z1Pz1/){:target="_blank"} |
 | LTV                     | Owen berates and sexually harasses a fellow streamer for making video clips of him. |
 | Titus Frost             | Owen gets triggered over a fellow streamer's minor countersignaling. |
-| Pastor Bear             | Owen berates and doxxes a fan to defend James True's honor.  |
+| Pastor Bear             | [Owen berates and doxxes a fan to defend James True's honor.](https://www.bitchute.com/video/auilrE02PGNj/){:target="_blank"} |
 | Lady Q                  | [Owen berates a fan for her support of QAnon.](https://www.bitchute.com/video/ZmUv8ABuaTSj/){:target="_blank"} |
 | Richie From Boston      | [Owen freaks out when another streams points out that Owen is from Hollywood.](https://www.bitchute.com/video/E9gAjJLX0g8o/){:target="_blank"} |
 | Oil Bear                | Owen accuses a fan of a 'full psychotic break' for suggesting he use an ethernet cable. |
@@ -66,4 +66,6 @@ tags: [beef]
 | Black Pilled's Livechat | [Owen loses his mind when he is trolled by the members of a fellow streamer's livechat.](https://www.bitchute.com/video/48FNVbzaX8GC/){:target="_blank"} |
 | Bronze Star Bear        | [Owen attacks a fan who served in the armed forces.](https://www.bitchute.com/video/5KhuNn8JsfYW/){:target="_blank"} |
 | Sam Tripoli             | [Owen accuses a longtime ally of 'concern trolling'.](https://www.youtube.com/watch?v=Ssv5o-Utruw){:target="_blank"} |
+| Ice Age Farmer          |                                                              |
+| Stefan Molyneux         |                                                              |
 
