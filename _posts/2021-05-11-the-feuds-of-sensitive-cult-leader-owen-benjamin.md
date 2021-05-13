@@ -7,7 +7,7 @@ tags: [beef]
 ---
 
 | Opponent             | Summary                                                      |
-| -------------------- | ------------------------------------------------------------ |             |
+| -------------------- | ------------------------------------------------------------ |
 | Jesse Thorn          | Owen falsely accuses a guy of giving his kid hormone blockers. |
 | Brendan Krick        | Owen sexually assaults a fellow comedian on stage.           |
 | Saranac Lake People  | Owen sings a vulgar song at a town hall and refuses to apologize, skips town instead. |
@@ -16,7 +16,7 @@ tags: [beef]
 | Steven Crowder       | Owen cries and carries a years-long one-sided feud because Crowder fired him. |
 | Alex Jones           | Owen cries and carries a years-long one-sided feud because Alex fired him. |
 | Amy's Family         | Owen gets in fights with Amy's family about conspiracy theories at holiday gatherings. |
-| Eric Dubay           |                                                              |
+| Eric Dubay           | Owen spirals as a way to avoid debating Dubay. Of all Owen's public conflicts, he's never taken part in a debate. |
 | Johnny Arcade        | Owen doxxes a former fan and lies about him attempting to murder his son with poison gummies. |
 | Eric Nimmer          | Owen chooses a known liar over his fans then ends up scammed out of $10,000. |
 | Owen's Dad           | Owen and his mom conspire to ruin his dad's name for years only to admit |
