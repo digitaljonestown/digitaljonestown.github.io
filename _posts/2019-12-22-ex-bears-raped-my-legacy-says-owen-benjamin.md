@@ -1,5 +1,5 @@
 ---
-title: Ex-bears "raped my legacy", says Owen Benjamin
+title: Ex-bears raped my legacy, says Owen Benjamin
 author: Pastor Jim
 date: 2019-12-22 20:55:00 +0800
 categories: [Beef]
