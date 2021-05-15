@@ -1,5 +1,5 @@
 ---
-title: Vox Day and the fake “Anti-Swatting Act of 2018"
+title: Vox Day and the fake Anti-Swatting Act of 2018
 author: Pastor Jim
 date: 2020-01-20 20:55:00 +0800
 categories: [Lies, Swatting]
