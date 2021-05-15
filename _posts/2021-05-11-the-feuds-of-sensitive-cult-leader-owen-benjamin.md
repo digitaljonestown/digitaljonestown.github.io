@@ -30,7 +30,7 @@ tags: [beef]
 | Captain Cutler          | [Owen 'purges' loyal followers for questioning Vox Day and the UnauthorizedTV scam.](https://youtu.be/zr0lPnfTPnA){:target="_blank"} |
 | Over Bear               | [Owen 'purges' loyal followers for questioning Vox Day and the UnauthorizedTV scam.](https://youtu.be/zr0lPnfTPnA){:target="_blank"} |
 | Jordan Peterson         | Owen gets upset when JBP does not reciprocate Owen's attempt at a creepy pseudo father/son relationship. |
-| Mikhaila Peterson       | [Owen loses his mind over a harmless Instagram comment](https://www.bitchute.com/video/TOpEo0wBHvuG/).{:target="_blank"} |
+| Mikhaila Peterson       | [Owen loses his mind over a harmless Instagram comment.](https://www.bitchute.com/video/TOpEo0wBHvuG/){:target="_blank"} |
 | Ty Richards             | [Owen has a falling out with a fan who dared to ask for compensation for designing his tour merch.](https://digitaljonestown.com/categories/ty-richards/){:target="_blank"} |
 | Semper Bear             | [Owen falls out with a fan who defended a female fan Owen called a whore repeatedly.](https://www.bitchute.com/video/0UietNKJ888U/){:target="_blank"} |
 | Saucen Bear             | [Owen repeatedly calls a fan a whore for not dropping a topic fast enough.](https://www.bitchute.com/video/0UietNKJ888U/){:target="_blank"} |
@@ -67,5 +67,3 @@ tags: [beef]
 | Bronze Star Bear        | [Owen attacks a fan who served in the armed forces.](https://www.bitchute.com/video/5KhuNn8JsfYW/){:target="_blank"} |
 | Sam Tripoli             | [Owen accuses a longtime ally of 'concern trolling'.](https://www.youtube.com/watch?v=Ssv5o-Utruw){:target="_blank"} |
 | Ice Age Farmer          |                                                              |
-| Stefan Molyneux         |                                                              |
-
