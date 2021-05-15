@@ -4,6 +4,7 @@ author: Pastor Jim
 date: 2021-05-11 14:10:00 +0800
 categories: [Beef]
 tags: [beef]
+pin: true
 ---
 
 | Opponent                | Summary                                                      |

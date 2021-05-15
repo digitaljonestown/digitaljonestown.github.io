@@ -1,7 +1,7 @@
 ---
 title: Owen Benjamin vs Joe Rogan - Full Breakdown
 author: Pastor Jim
-date: 2021-05-11 14:10:00 +0800
+date: 2019-01-01 14:10:00 +0800
 categories: [Beef, Joe Rogan]
 tags: [beef]
 ---
@@ -56,3 +56,4 @@ tags: [beef]
  [Impulse control (Owen Benjamin’s Head Injuries)](https://www.bitchute.com/video/NTpDQ7CP8agt/) 
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/NTpDQ7CP8agt/"></iframe>
+
