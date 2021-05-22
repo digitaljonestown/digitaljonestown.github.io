@@ -58,7 +58,7 @@ pin: true
 | Elizabeth M             | Owen steals $400 beartaria donation from a former fan and refuses to give a refund. |
 | KatBear                 | [Owen tell shis followers to come to Idaho then gets upset when one says hello at the post office.](https://www.youtube.com/watch?v=JEZfu-dmjQ4){:target="_blank"} |
 | Milker Nation           | Owen is triggered by satirical content.                      |
-| Ohio Fire Bear          | Owen encourages a devout follower to start a bear church then berates him for it. |
+| Ohio Fire Bear          | Owen encourages a devout follower to start a bear church then attacks and banishes him for it. |
 | Jay Dyer                | [Owen is triggered by a commentator's criticism. Owen rejects "thousands" of offers to debate.](https://www.reddit.com/r/owenbenjamin/comments/mrkpor/jay_dyer_posted_this_lmao_i_still_think_it_should/){:target="_blank"} |
 | E. Michael Jones        | Owen lies when confronted about his blasphemy of the Holy Spirit then spirals in the days after. |
 | Milo                    | Owen is triggered by Milo staging an "intervention" regarding Owen's blasphemy of Christ. |
@@ -67,4 +67,10 @@ pin: true
 | Black Pilled's Livechat | [Owen loses his mind when he is trolled by the members of a fellow streamer's livechat.](https://www.bitchute.com/video/48FNVbzaX8GC/){:target="_blank"} |
 | Bronze Star Bear        | [Owen attacks a fan who served in the armed forces.](https://www.bitchute.com/video/5KhuNn8JsfYW/){:target="_blank"} |
 | Sam Tripoli             | [Owen accuses a longtime ally of 'concern trolling'.](https://www.youtube.com/watch?v=Ssv5o-Utruw){:target="_blank"} |
-| Ice Age Farmer          |                                                              |
+| Ice Age Farmer          | Owen picks a fight with a Christian homesteader on Instagram. |
+| Building the Realm      | Owen smears a fan as a cult leader for trying to start a commune. |
+| reloaderbear            | Owen repeatedly abuses and banishes a bear in chat to make an example of him. |
+| OverBear                | Owen attacks and smears a loyal fan for petty reasons.       |
+| A Call For an Uprising  | Owen picks a fight with a fellow "truther".                  |
+| Moonbay Bear            | Owen makes an example of a bear to show the rest of the cult his "shunning" policy. |
+| Bret  Weinstein         | Owen gets mad and attacks Bret for calling him a "working man's genius" when Owen believes he is just a regular genius. |
