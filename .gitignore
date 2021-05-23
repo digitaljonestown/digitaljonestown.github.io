@@ -4,6 +4,7 @@
 
 # bundler cache
 _site
+_drafts
 vendor
 Gemfile.lock
 
