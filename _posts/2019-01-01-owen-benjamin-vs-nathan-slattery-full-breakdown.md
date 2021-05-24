@@ -4,6 +4,7 @@ author: Pastor Jim
 date: 2019-01-01 14:10:00 +0800
 categories: [Beef, Nathan Slattery]
 tags: [beef]
+comments: on
 ---
 
  [Owen Benjamin vs Singalong Bear's Husband supercut](https://www.bitchute.com/video/KnZ6WtNdZYK0/) 

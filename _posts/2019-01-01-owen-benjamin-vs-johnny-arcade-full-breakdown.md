@@ -4,6 +4,7 @@ author: Pastor Jim
 date: 2019-01-01 14:10:00 +0800
 categories: [Beef, Johnny Arcade]
 tags: [beef]
+comments: on
 ---
 
  [The Man who Owen Falsely Accused of Poisoning Kids. - YouTube](https://www.youtube.com/watch?v=lxTEACYBuJI) 

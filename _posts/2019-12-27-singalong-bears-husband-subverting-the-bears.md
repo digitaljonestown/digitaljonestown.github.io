@@ -1,7 +1,7 @@
 ---
 title: Singalong Bear's Husband subverting the bears?
 author: Pastor Jim
-date: 2019-11-29 20:55:00 +0800
+date: 2019-12-27 20:55:00 +0800
 categories: [Beef, Nathan Slattery]
 tags: [beef]
 ---

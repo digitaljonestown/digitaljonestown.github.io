@@ -4,6 +4,7 @@ author: Pastor Jim
 date: 2019-01-01 14:10:00 +0800
 categories: [Beef, Joe Rogan]
 tags: [beef]
+comments: on
 ---
 
 

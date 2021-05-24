@@ -4,6 +4,7 @@ author: Pastor Jim
 date: 2019-01-01 14:10:00 +0800
 categories: [Beef, Joey Diaz]
 tags: [beef]
+comments: on
 ---
 
  [Owen Benjamin addresses Joey Diaz 'Stars of Death' incident](https://www.bitchute.com/video/jbrPiaDztw5M/) 

@@ -4,6 +4,7 @@ author: Pastor Jim
 date: 2019-01-01 14:10:00 +0800
 categories: [Beef, Nick Fuentes]
 tags: [beef]
+comments: on
 ---
 
  ["I'm not on DLive because I'm not a homosexual"](https://www.bitchute.com/video/Nsl80OtIFWqy/) 
