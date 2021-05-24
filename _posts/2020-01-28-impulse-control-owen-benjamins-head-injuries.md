@@ -2,7 +2,7 @@
 title: Impulse Control (Owen Benjamin’s Head Injuries)
 author: Pastor Jim
 date: 2020-01-28 20:55:00 +0800
-categories: [Misc]
+categories: [Beef, Joe Rogan]
 tags: [cte, rogan]
 ---
 

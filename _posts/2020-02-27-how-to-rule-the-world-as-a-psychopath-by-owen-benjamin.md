@@ -2,7 +2,7 @@
 title: How to Rule the World as a Psychopath by Owen Benjamin
 author: Pastor Jim
 date: 2020-02-27 20:55:00 +0800
-categories: [Delusions]
+categories: [Delusions, Intelligence]
 tags: [delusion, drugs, drunk, 0 iq]
 ---
 

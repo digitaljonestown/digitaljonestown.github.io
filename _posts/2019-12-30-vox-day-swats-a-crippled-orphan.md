@@ -2,8 +2,8 @@
 title: Vox Day SWATs a Crippled Orphan
 author: Pastor Jim
 date: 2019-12-30 20:55:00 +0800
-categories: [Vox]
-tags: [vox,swat]
+categories: [Grifter Cohorts, Vox Day]
+tags: [vox, swat]
 ---
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/bmEt4pKpxyqt/"></iframe>

@@ -2,7 +2,7 @@
 title: Owen Benjamin - Wizardry
 author: Pastor Jim
 date: 2020-02-12 20:55:00 +0800
-categories: [Misc]
+categories: [Creations]
 tags: [music, remix, meme]
 ---
 

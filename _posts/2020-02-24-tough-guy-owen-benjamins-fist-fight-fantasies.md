@@ -2,7 +2,7 @@
 title: Tough Guy Owen Benjamin Fist Fight Fantasies
 author: Pastor Jim
 date: 2020-02-24 20:55:00 +0800
-categories: [Delusions]
+categories: [Delusions, Fighting]
 tags: [delusions, drugs, drunk, fight, beef, rage, anger]
 ---
 

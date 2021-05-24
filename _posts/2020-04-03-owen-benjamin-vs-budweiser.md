@@ -2,7 +2,7 @@
 title: "Owen Benjamin receives a spiritual message from Budweiser"
 author: Pastor Jim
 date: 2020-04-03 20:55:00 +0800
-categories: [Delusion, Supernatural Abilities]
+categories: [Delusions, Supernatural Abilities]
 tags: [delusion, larp, special boy, magic]
 comments: true
 ---

@@ -2,7 +2,7 @@
 title: The Many Conflicts of Sensitive Cult Leader Owen Benjamin
 author: Pastor Jim
 date: 2021-05-11 14:10:00 +0800
-categories: [Conflict]
+categories: [Beef]
 tags: [beef, conflict]
 pin: true
 comments: true 
