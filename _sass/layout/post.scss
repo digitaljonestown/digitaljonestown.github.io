@@ -53,13 +53,14 @@
 }
 
 .post-tail-wrapper {
-  margin-top: 6rem;
+  margin-top: 0rem;
   border-bottom: 1px double var(--main-border-color);
   font-size: 0.85rem;
 }
 
 .post-tags {
   line-height: 2rem;
+  margin-bottom: -2.5rem;
 }
 
 .post-navigation {
