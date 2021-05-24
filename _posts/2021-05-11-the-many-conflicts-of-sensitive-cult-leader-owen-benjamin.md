@@ -5,7 +5,7 @@ date: 2021-05-11 14:10:00 +0800
 categories: [Conflict]
 tags: [beef, conflict]
 pin: true
-comments_id: 1 
+comments: true 
 ---
 
 | Opponent                | Summary                                                      |

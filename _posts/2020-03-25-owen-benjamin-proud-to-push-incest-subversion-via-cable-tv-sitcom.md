@@ -4,6 +4,7 @@ author: Pastor Jim
 date: 2020-03-25 20:55:00 +0800
 categories: [Mommy Issues]
 tags: [jean troy-smith, mommy issues, oedipus complex, subversion, hollywood]
+comments: on
 ---
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/B9vELEKdJAfR/"></iframe>

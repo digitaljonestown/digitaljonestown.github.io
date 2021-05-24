@@ -4,6 +4,7 @@ author: Pastor Jim
 date: 2020-03-12 20:55:00 +0800
 categories: [Beef, Christians]
 tags: [beef, christians, truthers, hollywood, lies, larp, gay]
+comments: on
 ---
 
 

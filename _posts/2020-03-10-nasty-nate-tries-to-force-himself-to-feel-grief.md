@@ -2,8 +2,9 @@
 title: Bear Cult Member Nasty Nate Slattery Forces Himself to Feel Grief
 author: Pastor Jim
 date: 2020-03-10 20:55:00 +0800
-categories: []
-tags: []
+categories: [Creations]
+tags: [music, remix, meme]
+comments: on
 ---
 
 

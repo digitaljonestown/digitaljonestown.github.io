@@ -4,6 +4,7 @@ author: Pastor Jim
 date: 2020-03-16 20:55:00 +0800
 categories: [Delusions, Intelligence]
 tags: [delusion, special boy]
+comments: on
 ---
 
 
