@@ -1,10 +1,11 @@
 ---
-title: The Many Feuds of Sensitive Cult Leader Owen Benjamin
+title: The Many Conflicts of Sensitive Cult Leader Owen Benjamin
 author: Pastor Jim
 date: 2021-05-11 14:10:00 +0800
-categories: [Beef]
-tags: [beef]
+categories: [Conflict]
+tags: [beef, conflict]
 pin: true
+comments_id: 1 
 ---
 
 | Opponent                | Summary                                                      |
@@ -74,3 +75,5 @@ pin: true
 | A Call For an Uprising  | Owen picks a fight with a fellow "truther".                  |
 | Moonbay Bear            | Owen makes an example of a bear to show the rest of the cult his "shunning" policy. |
 | Bret  Weinstein         | Owen gets mad and attacks Bret for calling him a "working man's genius" when Owen believes he is just a regular genius. |
+| Steven Pinder           | Owen attacks a fan for suggesting he call [Eric Nimmer](https://digitaljonestown.com/tags/nimmer) to hash out their problems. |
+| Mr. Goodbear            | Owen attacks a fan for sticking up for Steven Pinder.        |
