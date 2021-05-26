@@ -1,9 +1,9 @@
 ---
-title: The Many Conflicts of Sensitive Cult Leader Owen Benjamin
+title: The Many Grudges of Sensitive Cult Leader Owen Benjamin
 author: Pastor Jim
 date: 2021-05-11 14:10:00 +0800
 categories: [Beef]
-tags: [beef, conflict]
+tags: [beef, grudge, conflict]
 pin: true
 comments: true 
 ---
@@ -41,7 +41,7 @@ comments: true
 | Remnant Bear            | Owen berates a fan for his Christian religious views and support of King David. |
 | Cowboy Bear             | [Owen berates a fan who just lost a young child.](https://www.bitchute.com/video/WvuzGc9z1Pz1/){:target="_blank"} |
 | LTV                     | Owen berates and sexually harasses a fellow streamer for making video clips of him. |
-| Titus Frost             | Owen gets triggered over a fellow streamer's minor countersignaling. |
+| ` Frost                 | Owen gets triggered over a fellow streamer's minor countersignaling. |
 | Pastor Bear             | [Owen berates and doxxes a fan to defend James True's honor.](https://www.bitchute.com/video/auilrE02PGNj/){:target="_blank"} |
 | Lady Q                  | [Owen berates a fan for her support of QAnon.](https://www.bitchute.com/video/ZmUv8ABuaTSj/){:target="_blank"} |
 | Richie From Boston      | [Owen freaks out when another streams points out that Owen is from Hollywood.](https://www.bitchute.com/video/E9gAjJLX0g8o/){:target="_blank"} |
@@ -77,3 +77,10 @@ comments: true
 | Bret  Weinstein         | Owen gets mad and attacks Bret for calling him a "working man's genius" when Owen believes he is just a regular genius. |
 | Steven Pinder           | Owen attacks a fan for suggesting he call [Eric Nimmer](https://digitaljonestown.com/tags/nimmer) to hash out their problems. |
 | Mr. Goodbear            | Owen attacks a fan for sticking up for Steven Pinder.        |
+| Sabo                    |                                                              |
+| Dave Rubin              |                                                              |
+| Dennis Prager           |                                                              |
+| Ben Shapiro             |                                                              |
+| Sam Harris              |                                                              |
+| Stefan Molyneux         |                                                              |
+| Anthony Cumia           |                                                              |
