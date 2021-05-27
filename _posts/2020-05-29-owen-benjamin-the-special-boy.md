@@ -2,7 +2,7 @@
 title: "Owen Benjamin: The Special Boy"
 author: Pastor Jim
 date: 2020-05-29 20:55:00 +0800
-categories: [Delusion, Supernatural Abilities]
+categories: [Delusions, Supernatural Abilities]
 tags: [delusion, psychosis, pineal gland, special boy]
 ---
 
