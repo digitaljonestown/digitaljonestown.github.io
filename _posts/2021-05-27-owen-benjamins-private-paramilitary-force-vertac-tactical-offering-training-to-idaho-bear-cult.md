@@ -20,14 +20,14 @@ Verret’s Tactical is said to be the agency set to provide the “bears” tact
 
 In Tuesday’s meeting, neighboring property owners urged expedited action, to include consideration of a cease and desist order, estimating that up to 700 “bears” have donated and are planning to attend the property.
 
-\---
 
-Former comic riles neighbors with 'Bearteria' plans - [https://kvt.news/2021/05/25/former-comic-riles-neighbors-with-bearteria-plans/](https://kvt.news/2021/05/25/former-comic-riles-neighbors-with-bearteria-plans/){:target="_blank"}
+Source: [Former comic riles neighbors with 'Bearteria' plans - Kootenai Valley Times](https://kvt.news/2021/05/25/former-comic-riles-neighbors-with-bearteria-plans/){:target="_blank"}
+
+---
 
 Concerned residents near the Moyie River along Earl Lane Road spoke to county commissioners on Tuesday, May 25, about an alleged “Ruby Ridge style” compound forming in Boundary County.
 
-New compound forming, residents present zoning violations to commissioners - 
-[https://cdapress.com/news/2021/may/25/new-compound-forming-residents-present-zoning-cda/](https://cdapress.com/news/2021/may/25/new-compound-forming-residents-present-zoning-cda/){:target="_blank"}
+[New compound forming, residents present zoning violations to commissioners - Coeur d'Alene/Post Falls Press](https://cdapress.com/news/2021/may/25/new-compound-forming-residents-present-zoning-cda/){:target="_blank"}
 
 [https://bonnersferryherald.com/news/2021/may/25/new-compound-forming-residents-present-zoning-viol/](https://bonnersferryherald.com/news/2021/may/25/new-compound-forming-residents-present-zoning-viol/){:target="_blank"}
 
