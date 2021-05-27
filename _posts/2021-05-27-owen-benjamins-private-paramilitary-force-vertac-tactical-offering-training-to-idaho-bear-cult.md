@@ -22,12 +22,14 @@ In Tuesday’s meeting, neighboring property owners urged expedited action, to i
 
 \---
 
-Former comic riles neighbors with 'Bearteria' plans - https://kvt.news/2021/05/25/former-comic-riles-neighbors-with-bearteria-plans/
+Former comic riles neighbors with 'Bearteria' plans - [https://kvt.news/2021/05/25/former-comic-riles-neighbors-with-bearteria-plans/](https://kvt.news/2021/05/25/former-comic-riles-neighbors-with-bearteria-plans/){:target="_blank"}
 
 Concerned residents near the Moyie River along Earl Lane Road spoke to county commissioners on Tuesday, May 25, about an alleged “Ruby Ridge style” compound forming in Boundary County.
 
 New compound forming, residents present zoning violations to commissioners - 
-https://cdapress.com/news/2021/may/25/new-compound-forming-residents-present-zoning-cda/
+[https://cdapress.com/news/2021/may/25/new-compound-forming-residents-present-zoning-cda/](https://cdapress.com/news/2021/may/25/new-compound-forming-residents-present-zoning-cda/){:target="_blank"}
 
-https://bonnersferryherald.com/news/2021/may/25/new-compound-forming-residents-present-zoning-viol/
+[https://bonnersferryherald.com/news/2021/may/25/new-compound-forming-residents-present-zoning-viol/](https://bonnersferryherald.com/news/2021/may/25/new-compound-forming-residents-present-zoning-viol/){:target="_blank"}
+
+[Watch on YouTube](https://youtu.be/YfxmjmnPszI){:target="_blank"}
 
