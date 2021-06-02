@@ -6,16 +6,13 @@ categories: [Social Dysfunction, Public Nuisance]
 tags: [idaho, cult compound, bear abuse]
 ---
 
-<iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/oLgHueJALCQ1/"></iframe>
+<iframe width="640" height="360" src="https://www.youtube-nocookie.com/embed/Dl1sbCssSwA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 Technical glitches are from original stream. 
 
 0:00 fight with boomer in home depot 
-
 5:46 we're gonna build a castle 
-
 6:55 we found a way around getting building permits 
-
 7:20 fight with home depot boomer cont'd
 
 
