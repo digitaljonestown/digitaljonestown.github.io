@@ -11,8 +11,11 @@ tags: [idaho, cult compound, bear abuse]
 Technical glitches are from original stream. 
 
 0:00 fight with boomer in home depot 
+
 5:46 we're gonna build a castle 
+
 6:55 we found a way around getting building permits 
+
 7:20 fight with home depot boomer cont'd
 
 

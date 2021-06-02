@@ -10,6 +10,7 @@ tags: [scams, beartaria]
 
 Day 6 of former comedian Owen Benjamin live streaming himself robbing his fans blind
 
-More at https://digitaljonestown.com/categories/beartaria
+More at [https://digitaljonestown.com/categories/beartaria](https://digitaljonestown.com/categories/beartaria)
 
-https://youtu.be/A9sYu96Sa8s - Jul 14, 2020
+Original upload Jul 14, 2020 - [youtube](https://youtu.be/A9sYu96Sa8s)
+

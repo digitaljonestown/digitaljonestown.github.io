@@ -10,7 +10,7 @@ tags: [scams, beartaria]
 
 July 3, 2020 - Day 4: Have the bears come through on their promise to raise $2 million for Big Bear?
 
-More at https://digitaljonestown.com/categories/beartaria
+More at [https://digitaljonestown.com/categories/beartaria](https://digitaljonestown.com/categories/beartaria)
 
-https://youtu.be/LRovx0lEB-4 - Jul 12, 2020
+Original upload Jul 12, 2020 - [youtube](https://youtu.be/LRovx0lEB-4)
 

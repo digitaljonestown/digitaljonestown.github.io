@@ -10,6 +10,7 @@ tags: [scams, beartaria]
 
 July 4, 2020 - Day 5 of The Great Bear Heist.
 
-More at https://digitaljonestown.com/categories/beartaria
+More at [https://digitaljonestown.com/categories/beartaria](https://digitaljonestown.com/categories/beartaria)
 
-https://youtu.be/xmZ_iH7q7b4 - Jul 13, 2020
+Original upload Jul 13, 202 - [youtube](https://youtu.be/xmZ_iH7q7b4)
+

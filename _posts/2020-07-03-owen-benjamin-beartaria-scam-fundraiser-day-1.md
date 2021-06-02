@@ -1,7 +1,7 @@
 ---
 title: "Owen Benjamin's Beartaria Fundraising Scam - Day 1"
 author: Pastor Jim
-date: 2020-03-16 20:55:00 +0800
+date: 2020-07-03 20:55:00 +0800
 categories: [Scams, Beartaria]
 tags: [scams, beartaria]
 ---
@@ -10,7 +10,9 @@ tags: [scams, beartaria]
 
 Days after getting a $45,000 bill from the bears' attorney in the Patreon lawsuit, Owen Benjamin starts a fundraising telethon for a bear retreat with endless possibilities.
 
-More at https://digitaljonestown.com/categories/beartaria
+More at [https://digitaljonestown.com/categories/beartaria](https://digitaljonestown.com/categories/beartaria)
 
-https://youtu.be/nGfeAir5lVk - Jul 3, 2020
+Original upload Jul 3, 2020 - [youtube](https://youtu.be/nGfeAir5lVk)
+
+
 

@@ -12,7 +12,7 @@ Day 3 of the great descent into Idaho cabin timeshare fundraising madness.
 
 \#beartaria #BearTrail
 
-More at https://digitaljonestown.com/categories/beartaria
+More at [https://digitaljonestown.com/categories/beartaria](https://digitaljonestown.com/categories/beartaria)
 
-https://youtu.be/-UkbjSQPNt4 - Jul 8, 2020
+Original upload Jul 8, 2020 - [youtube](https://youtu.be/-UkbjSQPNt4)
 
