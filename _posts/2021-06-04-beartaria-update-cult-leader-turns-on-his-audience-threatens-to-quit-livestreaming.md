@@ -3,7 +3,7 @@ title: "Beartaria Update 6/4: Cult Leader turns on his audience, threatens to qu
 author: Pastor Jim
 date: 2021-06-04 14:10:00 +0800
 categories: [Scams, Beartaria]
-tags: [scams, beartaria]
+tags: [scam, beartaria]
 ---
 <iframe width="640" height="360" src="https://www.youtube.com/embed/TPAl19dRUgQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 

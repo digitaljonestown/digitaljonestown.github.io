@@ -3,7 +3,7 @@ title: "Retreat and Burn Your Own Farm: Owen and Faith Goldy talk #GayOps"
 author: Pastor Jim
 date: 2020-03-30 20:55:00 +0800
 categories: [Beef, Mersh]
-tags: [beef, mersh, gayops]
+tags: [beef, gayops]
 comments: on
 ---
 

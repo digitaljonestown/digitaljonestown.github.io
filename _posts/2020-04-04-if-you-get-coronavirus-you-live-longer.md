@@ -3,7 +3,7 @@ title: "If You Get Coronavirus, You Live Longer: 147 IQ Owen Interprets the Data
 author: Pastor Jim
 date: 2020-04-04 20:55:00 +0800
 categories: [Delusions, Intelligence]
-tags: [0 iq, medical advice, coronavirus, covid]
+tags: [0 iq, coronavirus]
 comments: true
 ---
 

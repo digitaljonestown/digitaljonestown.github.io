@@ -3,7 +3,7 @@ title: "DAY 2 of Owen Benjamin Harassing Idaho Reporter Mike Weland"
 author: Pastor Jim
 date: 2021-05-29 02:55:00 +0800
 categories: [Scams, Beartaria]
-tags: [idaho, cult, conflict]
+tags: [idaho, cult]
 ---
 
 <iframe width="640" height="480" src="https://www.youtube.com/embed/TydWAwcFki8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

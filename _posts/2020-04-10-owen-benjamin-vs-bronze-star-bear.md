@@ -3,7 +3,7 @@ title: "Owen Benjamin vs. Bronze Star Bear (Veteran Bear Abuse)"
 author: Pastor Jim
 date: 2020-04-10 20:55:00 +0800
 categories: [Beef, Bear Cult Members]
-tags: [beef, bear abuse, ritual cult abuse]
+tags: [beef, bear abuse, cult]
 comments: true
 ---
 

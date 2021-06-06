@@ -3,7 +3,7 @@ title: The Owen Benjamin Guide to Good Parenting
 author: Pastor Jim
 date: 2020-05-23 20:55:00 +0800
 categories: [Family Man, Shitty Parenting]
-tags: [cps, abuse, autism, mute child]
+tags: [cps, bear abuse, autism]
 ---
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/MEXaebUDZcla/"></iframe>

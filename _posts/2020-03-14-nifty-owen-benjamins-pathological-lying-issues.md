@@ -3,7 +3,7 @@ title: Nifty - Owen Benjamin Admits to his Pathological Lying Problems
 author: Pastor Jim
 date: 2020-03-14 20:55:00 +0800
 categories: [Lies]
-tags: [lies, mental illness]
+tags: [lies]
 comments: on
 ---
 

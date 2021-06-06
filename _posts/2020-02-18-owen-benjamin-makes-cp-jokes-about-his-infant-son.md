@@ -3,7 +3,7 @@ title: Owen Benjamin Makes Disgusting CP Jokes about his Infant Son
 author: Pastor Jim
 date: 2020-02-18 20:55:00 +0800
 categories: [Perversion, CP Obsession]
-tags: [pervert, cp obsession, parenting, comedy]
+tags: [pervert, pedo obsession, parenting]
 ---
 
 

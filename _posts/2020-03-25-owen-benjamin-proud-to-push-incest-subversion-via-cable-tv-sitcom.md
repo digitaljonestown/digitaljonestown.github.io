@@ -3,7 +3,7 @@ title: Owen Benjamin proud to push incest subversion via Cable TV Sitcom
 author: Pastor Jim
 date: 2020-03-25 20:55:00 +0800
 categories: [Mommy Issues]
-tags: [jean troy-smith, mommy issues, oedipus complex, subversion, hollywood]
+tags: [jean troy-smith, family]
 comments: on
 ---
 

@@ -3,7 +3,7 @@ title: "Owen Benjamin Stalks Idaho reporter, calls him a pedophile"
 author: Pastor Jim
 date: 2021-05-26 02:55:00 +0800
 categories: [Social Dysfunction, Public Nuisance]
-tags: [idaho, cult, conflict]
+tags: [idaho, cult]
 ---
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/98jgZAdRHkdK/"></iframe>

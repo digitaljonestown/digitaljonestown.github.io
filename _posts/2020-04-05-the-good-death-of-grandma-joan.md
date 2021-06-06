@@ -3,7 +3,7 @@ title: The Good Death of Grandma Joan
 author: Pastor Jim
 date: 2020-04-05 20:55:00 +0800
 categories: [Family Man]
-tags: [family, sociopathy]
+tags: [family, sociopath]
 comments: true
 ---
 

@@ -3,7 +3,7 @@ title: "Owen and the Bear Cult - Penis Worship Stream Vol. 1"
 author: Pastor Jim
 date: 2020-06-04 20:55:00 +0800
 categories: [Gay Stuff, Ritual Penis Worship]
-tags: [gay, bear cult rituals]
+tags: [gay, cult]
 ---
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/U1fb0LLSZjV9/"></iframe>

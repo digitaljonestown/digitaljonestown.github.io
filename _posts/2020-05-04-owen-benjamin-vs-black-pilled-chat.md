@@ -3,7 +3,7 @@ title: "Owen Benjamin vs. Black Pilled Livechat"
 author: Pastor Jim
 date: 2020-05-04 20:55:00 +0800
 categories: [Beef, Black Pilled Livechat]
-tags: [beef, conflict, hated, unpopular, rejected]
+tags: [beef, anti-social]
 comments: true
 ---
 

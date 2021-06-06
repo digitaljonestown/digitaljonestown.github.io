@@ -3,7 +3,7 @@ title: "Owen Benjamin Fights with Elderly 'Hunchback' at Gig Harbor Post Office"
 author: Pastor Jim
 date: 2020-07-27 20:55:00 +0800
 categories: [Beef, Post Office]
-tags: [beef, fight, temper tantrum, bullying, elder abuse, anti-social]
+tags: [beef, anti-social]
 ---
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/qT39ZybvKwWl/"></iframe>

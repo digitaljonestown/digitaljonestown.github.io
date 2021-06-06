@@ -3,7 +3,7 @@ title: Joe Rogan stuck his neck out for ungrateful traitor Owen Benjamin
 author: Pastor Jim
 date: 2020-03-07 20:55:00 +0800
 categories: [Beef, Joe Rogan]
-tags: [lies, larp, beef, obsession]
+tags: [lies, beef]
 comments: on
 ---
 

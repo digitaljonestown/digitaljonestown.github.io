@@ -3,7 +3,7 @@ title: Owen Benjamin accuses Vincent James of Setting Him Up
 author: Pastor Jim
 date: 2020-03-30 20:55:00 +0800
 categories: [Beef, Vincent James]
-tags: [beef, conflict, paranoia, gayops, nightwave, red elephants, vincent james, copyright, anti-social]
+tags: [beef, paranoia, gayops, anti-social]
 comments: on
 ---
 
@@ -13,5 +13,5 @@ From May 1, 2019. Owen Benjamin faces criticism over his #GayOps tactics against
 
 
 
-Original upload Mar 30, 2020 - https://youtu.be/jERDW8NvKGk
+Original upload Mar 30, 2020 - [youtube](https://youtu.be/jERDW8NvKGk)
 

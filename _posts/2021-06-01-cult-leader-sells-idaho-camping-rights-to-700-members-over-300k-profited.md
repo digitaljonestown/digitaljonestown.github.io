@@ -1,5 +1,5 @@
 ---
-title: "Cult Leader sells camping rights to 700 members (Over $300,000 profited)"
+title: "Cult Leader sells Idaho camping rights to 700 members (Over $300,000 profited)"
 author: Pastor Jim
 date: 2021-06-01 02:55:00 +0800
 categories: [Scams, Beartaria]

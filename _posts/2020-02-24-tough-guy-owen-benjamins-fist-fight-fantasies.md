@@ -3,7 +3,7 @@ title: Tough Guy Owen Benjamin Fist Fight Fantasies
 author: Pastor Jim
 date: 2020-02-24 20:55:00 +0800
 categories: [Delusions, Fighting]
-tags: [delusions, drugs, drunk, fight, beef, rage, anger]
+tags: [delusion, beef]
 ---
 
 
@@ -16,4 +16,4 @@ Owen Benjamin discusses what he'd do in hypothetical fights with Nick Fuentes, A
 
 
 
-https://youtu.be/Q_B-mkFKMQQ - Feb 24, 2020
+Original upload Feb 24, 2020 - [youtube](https://youtu.be/Q_B-mkFKMQQ)

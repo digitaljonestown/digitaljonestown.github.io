@@ -3,7 +3,7 @@ title: Owen Benjamin hates Christians and Truthers and Wishes he was Back in Hol
 author: Pastor Jim
 date: 2020-03-12 20:55:00 +0800
 categories: [Beef, Christians]
-tags: [beef, christians, truthers, hollywood, lies, larp, gay]
+tags: [beef, lies, gay]
 comments: on
 ---
 

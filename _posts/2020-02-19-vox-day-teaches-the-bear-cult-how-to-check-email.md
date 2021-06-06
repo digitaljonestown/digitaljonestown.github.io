@@ -3,7 +3,7 @@ title: Vox Day teaches the bear cult how to check email
 author: Pastor Jim
 date: 2020-02-19 20:55:00 +0800
 categories: [Grifter Cohorts, Vox Day]
-tags: [vox, high iq]
+tags: [vox, 0 iq]
 ---
 
 

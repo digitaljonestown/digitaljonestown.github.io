@@ -3,7 +3,7 @@ title: Owen Benjamin vs. Cowboy Bear
 author: Pastor Jim
 date: 2020-01-21 20:55:00 +0800
 categories: [Beef, Bear Cult Members]
-tags: [beef, conflict, bear abuse]
+tags: [beef, bear abuse]
 ---
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/WvuzGc9z1Pz1/"></iframe>
