@@ -83,4 +83,4 @@ comments: true
 | Ben Shapiro             |                                                              |
 | Sam Harris              |                                                              |
 | Stefan Molyneux         |                                                              |
-| Anthony Cumia           |                                                              |
+| Mike Weland             |                                                              |

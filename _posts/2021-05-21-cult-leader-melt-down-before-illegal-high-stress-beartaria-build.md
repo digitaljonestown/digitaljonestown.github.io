@@ -14,9 +14,9 @@ tags: [idaho, cult compound, bear abuse]
 
 10:46 foggy today, didn't sleep enough 
 
-11:22 spiral about dmitrybear aka makeemtapbear 
+11:22 spiral about dmitry-bear aka make-em-tap-bear 
 
-33:42 dmitrybear spiral cont'd, bitcoin, ethernet, stefan molyneux 
+33:42 dmitry-bear spiral cont'd, bitcoin, ethernet, stefan molyneux 
 
 39:32 sorry about my rant i'm tired and stressed out
 

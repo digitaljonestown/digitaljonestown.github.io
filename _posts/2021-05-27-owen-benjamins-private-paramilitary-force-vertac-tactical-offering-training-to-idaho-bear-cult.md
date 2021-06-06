@@ -8,6 +8,8 @@ tags: [violence, paramilitary, vertac, idaho, cult compound]
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/scqLoSLnesUn/"></iframe>
 
+[[bitchute](https://www.bitchute.com/video/scqLoSLnesUn/)] - [[youtube](https://youtu.be/YfxmjmnPszI)]
+
 “Whether you plan to have a bug-out survival property, a full-time family homestead or retire and build your dream home, Rural America gives you ultimate freedom and safety far away from the Sanctuary City,” they write on their website. “Living on a rural property in a Free State also gives you the best chance to survive major events such as an EMP or nuclear strike, invasion by foreign powers and even a possible coming Civil War. Better to be Safe than sorry …”
 
 The firm, it says on their website, “supports and recommends Brandon Verrett, lead instructor for VerTac Firearms Training based in Northern Idaho.”

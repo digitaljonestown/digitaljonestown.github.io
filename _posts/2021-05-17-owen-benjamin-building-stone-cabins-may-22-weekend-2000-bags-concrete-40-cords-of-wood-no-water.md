@@ -8,6 +8,9 @@ tags: [violence, paramilitary, vertac, idaho, cult compound]
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/8aapaMx9eN2T/"></iframe>
 
+[[bitchute](https://www.bitchute.com/video/8aapaMx9eN2T)] - [[youtube](https://youtu.be/Glzwd9qRapU)]
+## Timestamps
+
 0:00 40 cords of wood and 2000 bags of cement. an escavator. stone cabins.
 
 2:37 we're restructuring society. i'm the least skilled guy there so i'll be hauling water from the river.
