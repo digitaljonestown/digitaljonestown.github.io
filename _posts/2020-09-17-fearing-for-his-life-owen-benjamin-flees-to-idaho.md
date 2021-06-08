@@ -10,7 +10,7 @@ tags: [anti-social, idaho]
 
 Many are wondering exactly why washed up piano comic Owen Benjamin abruptly uprooted his family, including a newborn son, to relocate to Northern Idaho right before winter. In this video, Big Bear expwains that "I've gotten enough threats where I'm like 'OK, I'm gonna live in a pwace where if I put a sign that says No Trespassing, I can f*cking use a scope. DUDE, you can use a scope'".
 
-00:05 - Idaho has no gun laws. <br />
+00:00 - Idaho has no gun laws. <br />
 01:00 - *pause, sigh, look to the side.* One of the things I love about Idaho is freedom to shoot trespassers.<br />
 01:45 - In Idaho you can kill people with barely any paperwork.<br />
 02:45 - Bear tries to pinpoint Owen's location.<br />
