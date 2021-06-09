@@ -1,10 +1,9 @@
 ---
-title: The Many Grudges of Sensitive Cult Leader Owen Benjamin
+title: The Many Interpersonal Conflicts of Sensitive Cult Leader Owen Benjamin
 author: Pastor Jim
 date: 2021-05-11 14:10:00 +0800
 categories: [Beef]
 tags: [beef, anti-social]
-pin: true
 comments: true 
 ---
 
