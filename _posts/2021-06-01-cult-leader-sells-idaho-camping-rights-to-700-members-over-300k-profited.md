@@ -16,7 +16,7 @@ At [1:50](https://youtu.be/k06pOaDqkMc?t=110){:target="_blank"} he says they wil
 
 Now that neighbors are lobbying the county to shut it down and local and international media has picked up the story, Owen is backtracking from all his promises, and claiming that the compound he fundraised for is nothing more than "[10 guys barbecuing](https://youtu.be/vAhNx4tf2gM?t=1382){:target="_blank"}".
 
-Check us out on Bitchute: 
+Check us out on Bitchute:<br>
 [https://bitchute.com/milkernation](https://bitchute.com/milkernation){:target="_blank"}<br>
 [https://bitchute.com/digitaljonestown](https://bitchute.com/digitaljonestown){:target="_blank"}<br>
 
