@@ -2,13 +2,21 @@
 title: "Fearing for his life, Owen Benjamin flees to Idaho"
 author: Pastor Jim
 date: 2020-09-17 20:55:00 +0800
-categories: []
+categories: [Scams, Beartaria]
 tags: [anti-social, idaho]
 ---
 
 <iframe width="640" height="360" src="https://www.youtube.com/embed/NV3l4GvTHvk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-Many are wondering exactly why washed up piano comic Owen Benjamin abruptly uprooted his family, including a newborn son, to relocate to Northern Idaho right before winter. In this video, Big Bear expwains that "I've gotten enough threats where I'm like 'OK, I'm gonna live in a pwace where if I put a sign that says No Trespassing, I can f*cking use a scope. DUDE, you can use a scope'".
+## Many are wondering exactly why washed up piano comic Owen Benjamin abruptly uprooted his family, including a newborn son, to relocate to Northern Idaho right before winter. 
+
+
+
+In this video, Big Bear expwains that "I've gotten enough threats where I'm like 'OK, I'm gonna live in a pwace where if I put a sign that says No Trespassing, I can f*cking use a scope. DUDE, you can use a scope'".
+
+
+
+### Timestamps
 
 00:00 - Idaho has no gun laws. <br />
 01:00 - *pause, sigh, look to the side.* One of the things I love about Idaho is freedom to shoot trespassers.<br />

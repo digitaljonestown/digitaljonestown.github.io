@@ -8,10 +8,10 @@ tags: [beef, james true]
 
 <iframe width="640" height="360" scrolling="no" frameborder="0" style="border: none;" src="https://www.bitchute.com/embed/cvQxe2zNtnOE/"></iframe>
 
-In this ninth installment we take a look back at the best moments from our first 8 groundbreaking episodes before The Showcase of the Immortals resumes, covering the timespan of Aug 21 to Aug 25, 2020. Special guest appearances by:
-Jesse Spots https://www.youtube.com/channel/UCIBXSVlwZSaFiEsp-8qiswg
-Branchlife https://www.youtube.com/channel/UCw3_PO5umBwOdfCNQIDQgrg
-OGMizen https://www.youtube.com/user/OGMizen
+In this ninth installment we take a look back at the best moments from our first 8 groundbreaking episodes before The Showcase of the Immortals resumes, covering the timespan of Aug 21 to Aug 25, 2020. Special guest appearances by:<br>
+[Jesse Spots](https://www.youtube.com/channel/UCIBXSVlwZSaFiEsp-8qiswg){:target="_blank"}<br>
+[Branchlife](https://www.youtube.com/channel/UCw3_PO5umBwOdfCNQIDQgrg){:target="_blank"}<br>
+[OGMizen](https://www.youtube.com/user/OGMizen){:target="_blank"}<br>
 
 
 

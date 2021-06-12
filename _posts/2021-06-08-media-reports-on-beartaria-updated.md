@@ -43,3 +43,4 @@ An ongoing list of all media pieces on the international news story of Owen Benj
 6/9 - [Planning and Zoning issues formal complaint to Owen Benjamin - Shoshone News-Press](https://shoshonenewspress.com/news/2021/jun/09/planning-and-zoning-issues-formal-complaint-owen-b/){:target="_blank"}
 
 6/10 - [Beartaria gets notice of potential violation from county P&Z – Kootenai Valley Times](https://kvt.news/2021/06/10/beartaria-gets-notice-of-potential-violation-from-county-pz/){:target="_blank"}
+
