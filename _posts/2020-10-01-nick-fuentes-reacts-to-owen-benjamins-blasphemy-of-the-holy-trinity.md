@@ -12,7 +12,7 @@ Elron sends Nick Fuentes a superchat to ask about Owen Benjamin's blaspheming of
 
 From 9/30/2020 America First stream on DLive.
 
-Thanks to [r/owenbenjamin](r/owenbenjamin) for pointing this out with timestamps.
+Thanks to [r/owenbenjamin](https://www.reddit.com/r/owenbenjamin/comments/j31fcq/nick_fuentes_drama_coming_soon/) for pointing this out with timestamps.
 
 Original upload Oct 1, 2020 - https://youtu.be/52HXmiO_-Fo
 
