@@ -1,10 +1,11 @@
 ---
 title: "Did I manipulate the global media with my video editing?"
 author: Pastor Jim
-date: 2021-06-12 04:10:00 +0800
+date: 2021-06-12 14:10:00 +0800
 categories: [Scams, Beartaria]
 tags: [scam, beartaria]
 image: https://res.cloudinary.com/jonestown/image/upload/v1623525489/tricked_rfnz4j.jpg
+alt: Cult Leader Owen Benjamin
 ---
 
 Former Comedian Owen Benjamin is facing a ton of bad press thanks to concerned residents in Boundary County attempting to have County Commissioners shut down his 'Beartaria' fantasy ranch. 
