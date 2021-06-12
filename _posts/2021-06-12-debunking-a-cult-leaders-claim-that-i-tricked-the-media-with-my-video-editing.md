@@ -85,6 +85,10 @@ The **May 31** sermon saw Owen tell the bears that [the 'Beartaria' neighbors lo
 
 
 
+### The [Daily Mail](https://www.dailymail.co.uk/news/article-9640211/Disgraced-alt-right-comedian-Owen-Benjamin-planning-Idaho-refuge-online-pals.html) also picked up the story, writing that "In videos, he spoke of having 'paramilitary friends' and a gun range at property".
+
+
+
 On his stream that day, Owen claims the supercut is [out of context](https://www.youtube.com/watch?v=RxUOTet7leE&list=PLVhxOtS9bhwjajnaAM9mgts2yB5HAhd3L&index=13&t=1333s){:target="_blank"} and being used to [gaslight the media](https://www.youtube.com/watch?v=BYAs3j1HiAI&t=615s){:target="_blank"} and [make him look crazy](https://www.youtube.com/watch?v=BYAs3j1HiAI&t=1205s){:target="_blank"}, calling it a '[massively edited ridiculous hit video](https://www.youtube.com/watch?v=BYAs3j1HiAI&t=1320s){:target="_blank"}' and making the point that [paramilitary training would be more expensive than \$400](https://www.youtube.com/watch?v=BYAs3j1HiAI&t=1407s). Owen reiterates [the paramilitary thing was a joke](https://www.youtube.com/watch?v=RxUOTet7leE&list=PLVhxOtS9bhwjajnaAM9mgts2yB5HAhd3L&index=13&t=1283s){:target="_blank"}. 
 
 
