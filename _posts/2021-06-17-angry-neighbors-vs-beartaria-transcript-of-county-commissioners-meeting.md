@@ -7,13 +7,13 @@ tags: [scam, beartaria]
 ---
  
 These are the minutes from the [Boundary County official site](http://boundarycountyid.org/minutes/commissioners-meeting-minutes-week-may-24-2021) featuring concerned residents near Owen Benjamin’s “Ursa Rio” Beartaria property in Bonners Ferry, Idaho imploring county commissioners to shut down Owen’s plans of building an illegally-zoned commercial for-profit fee-based cult compound. 
-​<br><br>
-**11:00 a.m.**, Elaine Duncan and Ken Lustig, residents on Earl Lane Road, joined the meeting to voice concerns regarding a neighbor, Owen Benjamin, and the development taking place on Mr. Benjamin’s property. Also present were: Ann Brezina, Linda Tanaka, Diana Tombleson, Craig Kelson, Barbara Russell, Fred Farrington, Sam Testa, and Mike Weland for Kootenai Valley Times, and Bonners Ferry Herald Reporter Victor Martinez. Chairman Dinning clarified that this is a regular meeting; not a hearing. 
+​
+### 11:00 a.m., Elaine Duncan and Ken Lustig, residents on Earl Lane Road, joined the meeting to voice concerns regarding a neighbor, Owen Benjamin, and the development taking place on Mr. Benjamin’s property. Also present were: Ann Brezina, Linda Tanaka, Diana Tombleson, Craig Kelson, Barbara Russell, Fred Farrington, Sam Testa, and Mike Weland for Kootenai Valley Times, and Bonners Ferry Herald Reporter Victor Martinez. Chairman Dinning clarified that this is a regular meeting; not a hearing. 
 ​
 Chairman Dinning explained to those present that the legal process for a Planning and Zoning violation is for a complaint to be filed with Planning and Zoning, then it’s looked into and should it be determined there is validity to investigate if there is a violation, it’s turned over to the Prosecutor’s Office to handle. 
-​
+​<br><br>
 Commissioners have absolutely no place in that process, because this is a civil legal situation. Chairman Dinning added, with that said, he just wanted people to know the ground work going forward. Ms. Duncan showed Commissioners a complaint that was sent to the Planning and Zoning Office.
-​
+​​<br><br>
 Chairman Dinning said as for all of the things he has seen regarding what is on the internet, there needs to be proof there is an actual violation that has occurred on the land as opposed to what’s being alleged, as it’s not known if that has occurred. If something has occurred, pictures would be sent on to Planning and Zoning. 
 ​
 ### Ms. Duncan added that she did stop by the Planning and Zoning Office one month ago and the person in the office said they would have Planning and Zoning Administrator Clare Marley get back to her.
@@ -23,13 +23,13 @@ Mr. Lustig said he thought Commissioners could override Planning and Zoning. Cha
 ### Ms. Duncan said there was no response from Planning and Zoning for six weeks so that’s why they’re here before Commissioners. 
 ​
 Ms. Duncan said the only reason this neighbor and their corporation is being talked about is because it puts a unique twist on the land use and she mentioned information last week as to a potential zoning violation. Ms. Duncan commented that she had provided background as to why this is such an imminent situation.
-​
+​​<br><br>
 Chairman Dinning said once the notice of violation is received, the landowner is to respond to that notice. 
 ​
 ### Ms. Duncan said she believes that Commissioners should send a cease and desist letter to the landowner. 
 ​
 Ms. Duncan referred to Section 4.7 in the county’s Land Use Ordinance and it states that if there is cause to believe there is a violation, Commissioners may direct the Sheriff to assume responsibility for enforcement. 
-​
+​​<br><br>
 Ms. Duncan discussed highlights included in her packet of information to include two letters to the Planning and Zoning Office. 
 ​
 ### Ms. Duncan said she doesn’t need to explain the Ruby Ridge connotation. As many as 700 people may have donated funds to Mr. Benjamin. Ms. Duncan commented that she sent a letter to the Planning and Zoning Administrator in May with regard to Ruby Ridge and the notice of white supremacists. 
@@ -51,9 +51,9 @@ This is not our problem. The existing neighbors have been there for decades. Thi
 ### Ms. Duncan said she knows that Planning and Zoning has to investigate this and the Sheriff should go and investigate this today. 
 ​
 There is also probable cause that this will be detrimental to the public and a **cease and desist** letter is probably the way to go.
-​
+​​<br><br>
 Chairman Dinning said at this point the Prosecutor just received this information and will need to work with them. **It should be investigated as fast as possible**, but the county still has to keep this in the framework of the process.
-​
+​​<br><br>
 Mr. Lustig provided Commissioners with supplemental information and he commented that this is the last parcel of that subdivision. 
 ​
 ### Most people in this area are between the ages of 60 and 83. Now they have to deal with some people of gang notoriety arriving with heavy weapons and it terrorizes people with lack of mobility or who are aged, etc. 
@@ -63,7 +63,7 @@ It interferes with the quality of life due to the inability to respond. People w
 ### Mr. Benjamin has already started to build and it needs to be stopped at a point where both sides can be considered. A compound like this will affect property values. 
 ​
 Mr. Lustig explained that he had lived in Hayden during the time of the Aryan nation and how that affected property values. What Mr. Benjamin is proposing to do is a special use, such as gun range or something else, and the county does have a process by which he can make application. Mr. Lustig said if this was an area adjacent to Bonners Ferry, he knows Mr. Benjamin wouldn’t be engaging in fire practices and he knows he will have a gun range on the property.
-​
+​​<br><br>
 Chairman Dinning said if Commissioners miss a step in the process, it can invalidate what has been accomplished and that is part of where Commissioners are going with this. 
 ​
 ### At this point Planning and Zoning and the Prosecutor have this matter so they will look at the pieces of the process and consult with the county’s civil attorney as fast as they can to determine if there is legitimacy. 
@@ -73,7 +73,7 @@ To go forward legally, the county cannot miss a step, according to Chairman Dinn
 ## Mr. Lustig said you have grown men running around with guns thinking they are Rambo. 
 ​
 Commissioner Bertling asked if they’ve contacted the gas company about cars and machinery parking on the gas line. Mr. Lustig explained that Earl Lane Road is an unmaintained county right-of-way and beyond that it’s just two ruts. Even if Mr. Benjamin wanted a commercial operation, the road would have to be brought up to county standards.
-​
+​​<br><br>
 The meeting with Ms. Duncan and Mr. Lustig to discuss their concerns ended at 11:35 a.m.
-​
+​​<br><br>
 Full meeting notes: [http://boundarycountyid.org/minutes/commissioners-meeting-minutes-week-may-24-2021](http://boundarycountyid.org/minutes/commissioners-meeting-minutes-week-may-24-2021)
