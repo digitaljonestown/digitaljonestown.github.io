@@ -7,7 +7,7 @@ tags: [scam, beartaria]
 ---
  
 These are the minutes from the [Boundary County official site](http://boundarycountyid.org/minutes/commissioners-meeting-minutes-week-may-24-2021) featuring concerned residents near Owen Benjamin’s “Ursa Rio” Beartaria property in Bonners Ferry, Idaho imploring county commissioners to shut down Owen’s plans of building an illegally-zoned commercial for-profit fee-based cult compound. 
-​
+​<br><br>
 **11:00 a.m.**, Elaine Duncan and Ken Lustig, residents on Earl Lane Road, joined the meeting to voice concerns regarding a neighbor, Owen Benjamin, and the development taking place on Mr. Benjamin’s property. Also present were: Ann Brezina, Linda Tanaka, Diana Tombleson, Craig Kelson, Barbara Russell, Fred Farrington, Sam Testa, and Mike Weland for Kootenai Valley Times, and Bonners Ferry Herald Reporter Victor Martinez. Chairman Dinning clarified that this is a regular meeting; not a hearing. 
 ​
 Chairman Dinning explained to those present that the legal process for a Planning and Zoning violation is for a complaint to be filed with Planning and Zoning, then it’s looked into and should it be determined there is validity to investigate if there is a violation, it’s turned over to the Prosecutor’s Office to handle. 
