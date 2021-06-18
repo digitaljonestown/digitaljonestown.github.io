@@ -10,8 +10,10 @@ tags: [scam, beartaria]
 
 These are the minutes from the [Boundary County official site](http://boundarycountyid.org/minutes/commissioners-meeting-minutes-week-may-24-2021) featuring concerned residents near Owen Benjamin’s “Ursa Rio” Beartaria property in Bonners Ferry, Idaho imploring county commissioners to shut down Owen’s plans of building an illegally-zoned commercial for-profit fee-based cult compound. 
 
-### 11:00 a.m., Elaine Duncan and Ken Lustig, residents on Earl Lane Road, joined the meeting to voice concerns regarding a neighbor, Owen Benjamin, and the development taking place on Mr. Benjamin’s property. Also present were: Ann Brezina, Linda Tanaka, Diana Tombleson, Craig Kelson, Barbara Russell, Fred Farrington, Sam Testa, and Mike Weland for Kootenai Valley Times, and Bonners Ferry Herald Reporter Victor Martinez. Chairman Dinning clarified that this is a regular meeting; not a hearing.
+### 11:00 a.m., Elaine Duncan and Ken Lustig, residents on Earl Lane Road, joined the meeting to voice concerns regarding a neighbor, Owen Benjamin, and the development taking place on Mr. Benjamin’s property.
 
+Also present were: Ann Brezina, Linda Tanaka, Diana Tombleson, Craig Kelson, Barbara Russell, Fred Farrington, Sam Testa, and Mike Weland for Kootenai Valley Times, and Bonners Ferry Herald Reporter Victor Martinez. Chairman Dinning clarified that this is a regular meeting; not a hearing.
+<br><br>
 Chairman Dinning explained to those present that the legal process for a Planning and Zoning violation is for a complaint to be filed with Planning and Zoning, then it’s looked into and should it be determined there is validity to investigate if there is a violation, it’s turned over to the Prosecutor’s Office to handle.
 ​<br><br>
 Commissioners have absolutely no place in that process, because this is a civil legal situation. Chairman Dinning added, with that said, he just wanted people to know the ground work going forward. Ms. Duncan showed Commissioners a complaint that was sent to the Planning and Zoning Office.
@@ -44,8 +46,8 @@ It was 50 degrees and raining on a Monday night and there was an apparent constr
 ​
 ### Mr. Lustig said Mr. Benjamin has dates for a two week build and tactical fire arms training, and everyone can come. What if these followers, called bears, don’t get along with each other? This is a public nuisance.
 
-Ms. Duncan said she is really regretful that the process didn’t seem to be acknowledged by Planning and Zoning. It was said there is an email in which to send notice of violations, but there is not a quick response. It’s not the identity of the person, except for he’s running a commercial operation. The neighbors don’t want this. The agent for the corporation chose a bad site for what he wants to do. 
-​
+Ms. Duncan said she is really regretful that the process didn’t seem to be acknowledged by Planning and Zoning. It was said there is an email in which to send notice of violations, but there is not a quick response. It’s not the identity of the person, except for he’s running a commercial operation. The neighbors don’t want this. The agent for the corporation chose a bad site for what he wants to do.
+
 ### This area is zoned agriculture/forest where there are rules and regulations.
 
 This is not our problem. The existing neighbors have been there for decades. This is also not the county’s problem; it’s the property owner’s problem, but the county is the only one to do something about it. The lack of awareness is the property owner’s problem. 
