@@ -100,7 +100,7 @@ Of course he also continued to attack Mike Weland as a '[pedo wheelchair guy](ht
 
 When his livechat gets trolled, Owen [has a meltdown](https://www.youtube.com/watch?v=TPAl19dRUgQ&list=PLVhxOtS9bhwjajnaAM9mgts2yB5HAhd3L&index=15&t=1200s){:target="_blank"} and threatens to quit livestreaming.
 
-**June 6** Owen reports that Kathy Griffin [retweeted 'the paramilitary article'](https://www.youtube.com/watch?v=3H5jXhFBbMs&list=PLVhxOtS9bhwjajnaAM9mgts2yB5HAhd3L&index=16&t=792s){:target="_blank"}. Owen [attacks Weland](https://www.youtube.com/watch?v=3H5jXhFBbMs&list=PLVhxOtS9bhwjajnaAM9mgts2yB5HAhd3L&index=16&t=1500s){:target="_blank"} yet again and refers to 'the person who told everyone I was starting a compound in Idaho' (Elaine Duncan){:target="_blank"} as [a 'bitch' and a 'sodomite' and accuses her of breaking the law.](https://www.youtube.com/watch?v=3H5jXhFBbMs&list=PLVhxOtS9bhwjajnaAM9mgts2yB5HAhd3L&index=16&t=1286s)
+**June 6** Owen reports that Kathy Griffin [retweeted 'the paramilitary article'](https://www.youtube.com/watch?v=3H5jXhFBbMs&list=PLVhxOtS9bhwjajnaAM9mgts2yB5HAhd3L&index=16&t=792s){:target="_blank"}. Owen [attacks Weland](https://www.youtube.com/watch?v=3H5jXhFBbMs&list=PLVhxOtS9bhwjajnaAM9mgts2yB5HAhd3L&index=16&t=1500s){:target="_blank"} yet again and refers to 'the person who told everyone I was starting a compound in Idaho' (Elaine Duncan){:target="_blank"} as [a 'bitch' and a 'sodomite' and accuses her of breaking the law.](https://www.youtube.com/watch?v=3H5jXhFBbMs&list=PLVhxOtS9bhwjajnaAM9mgts2yB5HAhd3L&index=16&t=1286s){:target="_blank"}
 
 
 
